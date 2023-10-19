@@ -1,4 +1,4 @@
-# Socail City
+# Social City
 
 🙋‍♀️ Welcome to Social City! The one stop shop for establishing your social life! Come check out our awesome events, or discover new friends! 
 
